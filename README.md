@@ -13,13 +13,13 @@
 
 - 📝 I regularly write articles on [https://www.linkedin.com/feed/update/urn:li:activity:7211647751627935744/](https://www.linkedin.com/feed/update/urn:li:activity:7211647751627935744/)
 
-- 💬 Ask me about **MERN, MEAN, Prject D eployment**
+- 💬 Ask me about **MERN, MEAN, Project Deployment**
 
 - 📫 How to reach me **moreprathamesh565@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1kQx7UAIOqPv_x2zwoe6k2eD0XnFcYwgt?usp=sharing](https://drive.google.com/drive/folders/1kQx7UAIOqPv_x2zwoe6k2eD0XnFcYwgt?usp=sharing)
 
-- ⚡ Fun fact **I think i'm overthinker**
+- ⚡ Fun fact **I think I'm overthinker**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
